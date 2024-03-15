@@ -1,7 +1,7 @@
 ## D'Eux de Céline Dion
 
 
-![Cover](/articles/D'eux.jpeg)
+![Cover](articles/Deux.jpeg)
 
 
 ## Résumé
