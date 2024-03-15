@@ -5,4 +5,4 @@ Dire Straits formed in London in 1977 by Mark Knopfler, David Knopfler, John Ill
 ## Brothers in Arms
 Brothers in Arms was the first album recorded entirely digitally, because of Knopfler pushing for improved sound quality.
 
-![cover](https://upload.wikimedia.org/wikipedia/en/1/13/PinkFloydWallCoverOriginalNoText.jpg)
+![cover](https://upload.wikimedia.org/wikipedia/commons/thumb/b/bf/Dire_Straits_1978_Hamburg_1.jpg/1920px-Dire_Straits_1978_Hamburg_1.jpg)
